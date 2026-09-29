@@ -1,2 +1,0 @@
-# Amiro
-Amir51ir
